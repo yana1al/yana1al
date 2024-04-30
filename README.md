@@ -1,4 +1,4 @@
-👋 Hello, I'm Alima Sharma, hailing from the vibrant SF Bay Area. I'm joyfully navigating the journey of motherhood with my 6-month-old daughter, Yana, and caring for our two furry companions, PomPom and Polly.
+👋 Hello, I'm Alima Sharma, currently from the vibrant SF Bay Area. I'm joyfully navigating the journey of motherhood with my 6-month-old daughter, Yana, and caring for our two furry companions, PomPom and Polly.
 👀 My curiosity fuels my passion for exploring new realms of knowledge and experiences.
 🌱 Currently, I'm immersing myself in the world of coding and software engineering, eager to master its intricacies.
 💞️ I'm open to collaborating on innovative projects that challenge and inspire growth in my role as a Software Engineer.
